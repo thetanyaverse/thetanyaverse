@@ -1,4 +1,4 @@
-# Hey, I'm Tanya 👋
+# Hey, I'm Tanya ✨
 
 Welcome to my corner of the internet. I'm a Computer Science student, full of curiosity and ambition — building, learning, and dreaming big every single day.
 
